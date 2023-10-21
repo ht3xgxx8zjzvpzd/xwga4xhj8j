@@ -1,1 +1,1 @@
-# xwga4xhj8j
+Photoshop also offers a wide range of plugins and extensions that allow you to extend its functionality. You can install plugins to create special effects, integrate with other programs, and much more. This makes Photoshop a flexible tool that can be customized to your needs. Check out here - https://github.com/vio1217/Illustrator
